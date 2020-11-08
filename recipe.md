@@ -1,0 +1,14 @@
+In a pan take 1/4 cup sugar and heat on low to medium flame;
+Stir in between until sugar melts completely;
+Continue to heat until sugar turns golden brown, which is called caramelized sugar;
+Pour the caramelized sugar in to a small bowl and swirld to coat the wall of the bowl;
+Take 3 bread slices and trim off sides;
+Pulse into crumbs using a mixi;
+In a large bowl take 2 cup milk, 1/4 cup sugar and 1/4 custard powder;
+Whisk and mix well until everything is well combined;
+Transfer milk mixture to large kadhai(cauldron) and cook on medium flame, until milk thickens;
+Now add crumbled bread and continue to cook until mixture turns creamy;
+Pour the mixture into bowl of caramelized sugar; 
+Place in the steamer for 30 minutes;
+Cool completely and refrigirate for 1 hour;
+Unmould and enjoy Caramel Bread Pudding;
